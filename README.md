@@ -16,7 +16,7 @@ $${\color{#D5CECE}{rayㅤ૮₍ ˶• ˔  ต  ₎აㅤ;ㅤheㅤ৴ㅤitㅤ৴�
 <h3 align="center">⑅  ㅤ۫　 $\textcolor{#E1E1E1}{\textsf{Ⓘ}}$ $\textcolor{#F3E4E4}{\textsf{c + h}}$ $\textcolor{#C1BEBE}{\textsf{
 encouraged}}$    ᵎᵎ    ︶   ꪆ<br> .    ㅤ۫　      ʾʿ    $\textcolor{#801919}{\textsf{ no dni ಇ block freely }}$         ㅤ۫　      ♩ ⠀</h5>
 
-$${\color{#F3F1F1}{mah ♡゙゙ socials ㅤ꒰    ͜ ̣̣̥ ͜ᣟ݂ ۪۪۪⠀⠀ ◟ ͜ ◞      𓈒  ℘ ㅤ}}$$
+$${\color{#F3F1F1}{mah ♡゙゙ links!! ㅤ꒰    ͜ ̣̣̥ ͜ᣟ݂ ۪۪۪⠀⠀ ◟ ͜ ◞      𓈒  ℘ ㅤ}}$$
 
-[rentry](https://)ㅤ[strawpage](https://onlyharu.straw.page/)  ㅤ[atabook](https://syringblow.atabook.org/)ㅤ[discord](https://discord.com/users/1289607184799498315)
+ [rentry](https://)ㅤ[pronouns.cc](https://pronouns.cc/@syringblow_) ㅤ[atabook](https://syringblow.atabook.org/)ㅤ[discord](https://discord.com/users/1289607184799498315)
 
