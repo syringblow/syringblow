@@ -18,5 +18,5 @@ encouraged}}$    ᵎᵎ    ︶   ꪆ<br> .    ㅤ۫　      ʾʿ    $\textcolor{
 
 $${\color{#F3F1F1}{mah ♡゙゙ links!! ㅤ꒰    ͜ ̣̣̥ ͜ᣟ݂ ۪۪۪⠀⠀ ◟ ͜ ◞      𓈒  ℘ ㅤ}}$$
 
- [rentry](https://)ㅤ[pronouns.cc](https://pronouns.cc/@syringblow_) ㅤ[atabook](https://syringblow.atabook.org/)ㅤ[discord](https://discord.com/users/1289607184799498315)
+ [rentry]([https://](https://rentry.co/syringblow))ㅤ[pronouns.cc](https://pronouns.cc/@syringblow_) ㅤ[atabook](https://syringblow.atabook.org/)ㅤ[discord](https://discord.com/users/1289607184799498315)
 
