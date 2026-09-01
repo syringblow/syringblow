@@ -21,3 +21,34 @@ $${\color{#F3F1F1}{mah ♡゙゙ links!! ㅤ꒰    ͜ ̣̣̥ ͜ᣟ݂ ۪۪۪⠀�
 
  [rentry](https://rentry.co/syringblow)ㅤ[pronouns.cc](https://pronouns.cc/@syringblow_) ㅤ[atabook](https://syringblow.atabook.org/)ㅤ[discord](https://discord.com/users/1289607184799498315)
 
+ <p>   <img  align="left" width="55%" height="100%" src="https://64.media.tumblr.com/c47a58f4b77faf95ba2297fd382d4c51/2a5da151f0948118-99/s1280x1920/f571cdbb03f6def2bc3275177a621ef87bd03dd3.pnj" />
+
+<div align="right">
+
+<div>‎ ‎ ‎ ‎ ‎ </div>
+<div> ‎ ‎ ‎ ‎ </div>
+<div> ‎ ‎ ‎ ‎ </div>
+
+<div align="center">
+<div align="center"> <div>︶︶︶ ๑ ♡ ๑ ︶︶︶</div>
+
+
+$${\color{#F2F2F2} ໋݂  𓏵   ۪۪۪꒰   🐇 . \  byi ︵}$$<br>
+$${\color{#F2F2F2} ︶︶  ˚̣̣̣\ I'm \ ╱ VERY \  / mentally \  𓏵◞  \ }$$<br>
+$${\color{#F2F2F2} ♡⏝⸝⸝ \ ill \ \ and \ emotinal \ ⠀ 𓏏}$$<br>
+$${\color{#}◞ 𓏼 \ and \ MAY \ ︶  lash  \ out  ꒱
+}$$<br>
+$${\color{#F2F2F2} ◜ㅤat \ you \ or \ i \ may \ hurt \ myself \ ◞}$$<br>
+$${\color{#F2F2F2} ໒ 　so \ please \ be \ patience \ with \ me }$$<br>
+  </div>
+<div align="center"> <div>︵︵︵ ๑ ♡ ๑ ︵︵︵</div>
+
+
+<img src="https://files.catbox.moe/r2bwnk.png"  width="27%" height="25%"/>
+
+<div align="center"> <div>︶︶︶ ๑ ♡ ๑ ︶︶︶</div>
+
+$${\color{#F2F2F2} ◜𓏼  fandoms: \ saihate \ station, \ yttd, \ homestuck,  . ꒱}$$<br>
+$${\color{#F2F2F2} ︶ ˚̣̣̣ zeno \ remake, \ chiikawa, \ owm, \ zero day, \ omori, . \ 𓏵 }$$<br>
+$${\color{#F2F2F2} ꒰ ⸝⸝ \ rick \ and \ morty,  \ litc, \ and \ much \ more  ⸝ }$$<br>
+![](https://komarev.com/ghpvc/?username=syringblow&label=cuties&style=plastic&color=8c3e35&abbreviated=true)
