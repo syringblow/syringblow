@@ -52,5 +52,7 @@ $${\color{#F2F2F2} ◜𓏼  fandoms: \ saihate \ station, \ yttd, \ homestuck,  
 $${\color{#F2F2F2} ︶ ˚̣̣̣ zeno \ remake, \ chiikawa, \ owm, \ zero day, \ omori, .  }$$<br>
 $${\color{#F2F2F2} ꒰ ⸝⸝ \ rick \ and \ morty,  \ litc, \ and \ much \ more  ⸝ }$$<br>
 
+<div align="right">
+
 ![](https://komarev.com)
 ![](https://komarev.com/ghpvc/?username=syringblow&label=cuties&style=plastic&color=ab1f15&abbreviated=true)
