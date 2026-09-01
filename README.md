@@ -34,7 +34,7 @@ $${\color{#F3F1F1}{mah ♡゙゙ links!! ㅤ꒰    ͜ ̣̣̥ ͜ᣟ݂ ۪۪۪⠀�
 
 
 $${\color{#F2F2F2} ໋݂  𓏵   ۪۪۪꒰   🐇 . \  byi ︵}$$<br>
-$${\color{#F2F2F2} ︶︶  ˚̣̣̣\ I'm \ ╱ VERY \  / mentally \  𓏵◞  \ }$$<br>
+$${\color{#F2F2F2} ︶︶  ˚̣̣̣\ I'm \  VERY \   mentally \  𓏵◞  \ }$$<br>
 $${\color{#F2F2F2} ♡⏝⸝⸝ \ ill \ \ and \ emotinal \ ⠀ 𓏏}$$<br>
 $${\color{#}◞ 𓏼 \ and \ MAY \ ︶  lash  \ out  ꒱
 }$$<br>
@@ -49,7 +49,7 @@ $${\color{#F2F2F2} ໒ 　so \ please \ be \ patience \ with \ me }$$<br>
 <div align="center"> <div>︶︶︶ ๑ ♡ ๑ ︶︶︶</div>
 
 $${\color{#F2F2F2} ◜𓏼  fandoms: \ saihate \ station, \ yttd, \ homestuck,  . ꒱}$$<br>
-$${\color{#F2F2F2} ︶ ˚̣̣̣ zeno \ remake, \ chiikawa, \ owm, \ zero day, \ omori, . \ 𓏵 }$$<br>
+$${\color{#F2F2F2} ︶ ˚̣̣̣ zeno \ remake, \ chiikawa, \ owm, \ zero day, \ omori, .  }$$<br>
 $${\color{#F2F2F2} ꒰ ⸝⸝ \ rick \ and \ morty,  \ litc, \ and \ much \ more  ⸝ }$$<br>
 
 ![](https://komarev.com)
