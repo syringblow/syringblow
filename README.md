@@ -51,4 +51,6 @@ $${\color{#F2F2F2} ໒ 　so \ please \ be \ patience \ with \ me }$$<br>
 $${\color{#F2F2F2} ◜𓏼  fandoms: \ saihate \ station, \ yttd, \ homestuck,  . ꒱}$$<br>
 $${\color{#F2F2F2} ︶ ˚̣̣̣ zeno \ remake, \ chiikawa, \ owm, \ zero day, \ omori, . \ 𓏵 }$$<br>
 $${\color{#F2F2F2} ꒰ ⸝⸝ \ rick \ and \ morty,  \ litc, \ and \ much \ more  ⸝ }$$<br>
-![](https://komarev.com/ghpvc/?username=syringblow&label=cuties&style=plastic&color=8c3e35&abbreviated=true)
+
+![](https://komarev.com)
+![](https://komarev.com/ghpvc/?username=syringblow&label=cuties&style=plastic&color=ab1f15&abbreviated=true)
