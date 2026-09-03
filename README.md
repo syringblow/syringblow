@@ -54,8 +54,8 @@ $${\color{#F2F2F2} ໒ 　dont \ take \ it \ personally \ kayy.. \ . }$$<br>
 <div align="center"> <div>︶︶︶ ๑ ♡ ๑ ︶︶︶</div>
   
 $${\color{#F2F2F2} ◜𓏼  fandoms: \ saihate \ station, \ yttd, \ homestuck,  . ꒱}$$<br>
-$${\color{#F2F2F2} ︶ ˚̣̣̣ zeno \ remake, \ chiikawa, \ owm, \ zero day, \ omori, .  }$$<br>
-$${\color{#F2F2F2} ꒰ Otherwise \ you \ may \ accidentally \ be \ ignored ⸝ }$$<br>
+$${\color{#F2F2F2} ︶ ˚̣̣̣ zeno \ remake, \ chiikawa, \ owm, \ zero day, \ and \ more!.  }$$<br>
+
 
 
 
