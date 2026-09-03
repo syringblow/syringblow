@@ -36,10 +36,10 @@ $${\color{#F3F1F1}{mah ♡゙゙ links!! ㅤ꒰    ͜ ̣̣̥ ͜ᣟ݂ ۪۪۪⠀�
 $${\color{#F2F2F2} ໋݂  𓏵   ۪۪۪꒰   🐇 . \  byi ︵}$$<br>
 $${\color{#F2F2F2} ︶︶  ˚̣̣̣\ I'm \  VERY \   mentally \  𓏵◞  \ }$$<br>
 $${\color{#F2F2F2} ♡⏝⸝⸝ \ ill \ \ and \ emotinal \ ⠀ 𓏏}$$<br>
-$${\color{#}◞ 𓏼 \ and \ MAY \ ︶  lash  \ out  ꒱
+$${\color{#}◞ 𓏼 \ and \ MAY \ ︶  disant  \ myself  ꒱
 }$$<br>
-$${\color{#F2F2F2} ◜ㅤat \ you \ or \ i \ may \ hurt \ myself \ ◞}$$<br>
-$${\color{#F2F2F2} ໒ 　so \ please \ be \ patience \ with \ me }$$<br>
+$${\color{#F2F2F2} ◜ㅤfrom \ you \ or \ i \ ignore \ you \ please \ ◞}$$<br>
+$${\color{#F2F2F2} ໒ 　dont \ take \ it \ personally \ kayy.. \ . }$$<br>
   </div>
 <div align="center"> <div>︵︵︵ ๑ ♡ ๑ ︵︵︵</div>
 
