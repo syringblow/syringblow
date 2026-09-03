@@ -44,7 +44,7 @@ $${\color{#}◞ 𓏼 \ and \ MAY \ ︶  disant  \ myself  ꒱
 $${\color{#F2F2F2} ◜ㅤfrom \ you \ or \ i \ ignore \ you \ please \ ◞}$$<br>
 $${\color{#F2F2F2} ໒ 　dont \ take \ it \ personally \ kayy.. \ . }$$<br>
   </div>
-<div align="center"> <div>︵︵︵ ๑ ♡ ๑ ︵︵︵</div>
+ <div>︵︵︵ ๑ ♡ ๑ ︵︵︵</div>
 
 
 <img src="https://files.catbox.moe/r2bwnk.png"  width="27%" height="25%"/>
