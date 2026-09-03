@@ -56,10 +56,6 @@ $${\color{#F2F2F2} ໒ 　dont \ take \ it \ personally \ kayy.. \ . }$$<br>
 $${\color{#F2F2F2} ◜𓏼  fandoms: \ saihate \ station, \ yttd, \ homestuck,  . ꒱}$$<br>
 $${\color{#F2F2F2} ︶ ˚̣̣̣ zeno \ remake, \ chiikawa, \ owm, \ zero day, \ omori, .  }$$<br>
 
-<div align="right">
-
-$${\color{#F2F2F2} ꒰ ⸝⸝ \ rick \ and \ morty,  \ litc, \ and \ much \ more  ⸝ }$$<br>
-
 
 
 
