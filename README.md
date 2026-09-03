@@ -51,11 +51,12 @@ $${\color{#F2F2F2} ໒ 　dont \ take \ it \ personally \ kayy.. \ . }$$<br>
 
 <img src="https://files.catbox.moe/r2bwnk.png"  width="27%" height="25%"/>
 
-<div align="center"> <div>︶︶︶ ๑ ♡ ๑ ︶︶︶</div>
+<div align="right"> <div>︶︶︶ ๑ ♡ ๑ ︶︶︶</div>
 
 $${\color{#F2F2F2} ◜𓏼  fandoms: \ saihate \ station, \ yttd, \ homestuck,  . ꒱}$$<br>
 $${\color{#F2F2F2} ︶ ˚̣̣̣ zeno \ remake, \ chiikawa, \ owm, \ zero day, \ omori, .  }$$<br>
-$${\color{#F2F2F2} ꒰ ⸝⸝ \ rick \ and \ morty }$$<br>
+$${\color{#F2F2F2} ꒰ ⸝⸝ \ rick \ and \ morty,  \ litc, \ and \ much \ more  ⸝ }$$<br>
+
 
 
 
