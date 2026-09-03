@@ -1,3 +1,6 @@
+![](https://komarev.com)
+![](https://komarev.com/ghpvc/?username=syringblow&label=cuties&style=plastic&color=ab1f15&abbreviated=true)
+
 <div align="center">
   
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&letterSpacing=0.15em&duration=3000&pause=1000&color=FFFFFF&vCenter=true&multiline=true&width=570&height=70&lines=When+I'm+always+right+I+bend+the+truth;%E3%85%A4%E3%85%A4It+only+hurts+because+it's+true.." alt="Typing SVG" /></a>
@@ -54,5 +57,4 @@ $${\color{#F2F2F2} ꒰ ⸝⸝ \ rick \ and \ morty,  \ litc, \ and \ much \ more
 
 
 
-![](https://komarev.com)
-![](https://komarev.com/ghpvc/?username=syringblow&label=cuties&style=plastic&color=ab1f15&abbreviated=true)
+
