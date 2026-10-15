@@ -1,7 +1,7 @@
 <div align="center">
   
 ![](https://komarev.com)
-![](https://komarev.com/ghpvc/?username=syringblow&label=cuties&style=plastic&color=ab1f15&abbreviated=true)
+![](https://komarev.com/ghpvc/?username=syringblow&label=cuties&style=plastic&color=e3e3e3&abbreviated=true)
 
 <div align="center">
   
