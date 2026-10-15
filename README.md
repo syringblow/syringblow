@@ -20,7 +20,7 @@ $${\color{#ECE7E7}{ིྀ  𓎟𓎟𓎟𓎟𓎟𓎟𓎟ᛝ𓎟𓎟　†　𓎟�
 $${\color{#D5CECE}{rayㅤ૮₍ ˶• ˔  ต  ₎აㅤ;ㅤheㅤ৴ㅤitㅤ৴ㅤ they}}$$
 
 <h3 align="center">⑅  ㅤ۫　 $\textcolor{#E1E1E1}{\textsf{Ⓘ}}$ $\textcolor{#F3E4E4}{\textsf{c + h}}$ $\textcolor{#C1BEBE}{\textsf{
-encouraged}}$    ᵎᵎ    ︶   ꪆ<br> .    ㅤ۫　      ʾʿ    $\textcolor{#801919}{\textsf{ no dni ಇ block freely }}$         ㅤ۫　      ♩ ⠀</h5>
+encouraged}}$    ᵎᵎ    ︶   ꪆ<br> .    ㅤ۫　      ʾʿ    $\textcolor{#595959}{\textsf{ no dni ಇ block freely }}$         ㅤ۫　      ♩ ⠀</h5>
 
 $${\color{#F3F1F1}{mah ♡゙゙ links!! ㅤ꒰    ͜ ̣̣̥ ͜ᣟ݂ ۪۪۪⠀⠀ ◟ ͜ ◞      𓈒  ℘ ㅤ}}$$
 
