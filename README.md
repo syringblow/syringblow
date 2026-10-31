@@ -26,7 +26,7 @@ $${\color{#F3F1F1}{mah ♡゙゙ links!! ㅤ꒰    ͜ ̣̣̥ ͜ᣟ݂ ۪۪۪⠀�
 
  [rentry](https://rentry.co/syringblow)ㅤ[pronouns.cc](https://pronouns.cc/@syringblow_) ㅤ[atabook](https://syringblow.atabook.org/)ㅤ[discord](https://discord.com/users/1289607184799498315)
 
- <p>   <img  align="left" width="55%" height="100%" src="https://64.media.tumblr.com/c47a58f4b77faf95ba2297fd382d4c51/2a5da151f0948118-99/s1280x1920/f571cdbb03f6def2bc3275177a621ef87bd03dd3.pnj" />
+ <p>   <img  align="left" width="55%" height="100%" src="https://i.postimg.cc/P5ZZBp7V/ksfdsfsd.png" />
 
 <div align="right">
 
@@ -49,7 +49,7 @@ $${\color{#F2F2F2} ໒ 　dont \ take \ it \ personally \ kayy.. \ . }$$<br>
  <div>︵︵︵ ๑ ♡ ๑ ︵︵︵</div>
 
 
-<img src="https://files.catbox.moe/r2bwnk.png"  width="27%" height="25%"/>
+<img src="https://i.postimg.cc/g0g05GY9/68747470733a2f2f66696c65732e636174626f782e6d6f652f723262776e6b2e706e67-(1).png"  width="27%" height="25%"/>
 
 <div align="center"> <div>︶︶︶ ๑ ♡ ๑ ︶︶︶</div>
   
