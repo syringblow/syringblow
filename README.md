@@ -12,7 +12,7 @@
 
 
 
-<img width="340"  alt="image" src="https://i.postimg.cc/Y0YMp7wS/hiihijhi.png" />
+<img width="340"  alt="image" src="https://i.postimg.cc/cJLYkspL/I-heart-my-fictional-boyfriend-(1).png" />
 
 
 $${\color{#ECE7E7}{ིྀ  𓎟𓎟𓎟𓎟𓎟𓎟𓎟ᛝ𓎟𓎟　†　𓎟𓎟ᛝ𓎟𓎟𓎟𓎟𓎟𓎟𓎟 ྀི}}$$
@@ -38,7 +38,7 @@ $${\color{#F3F1F1}{mah ♡゙゙ links!! ㅤ꒰    ͜ ̣̣̥ ͜ᣟ݂ ۪۪۪⠀�
 <div align="center"> <div>︶︶︶ ๑ ♡ ๑ ︶︶︶</div>
 
 
-$${\color{#F2F2F2} ໋݂  𓏵   ۪۪۪꒰   🐇 . \  byi ︵}$$<br>
+$${\color{#F2F2F2} ໋݂  𓏵   ۪۪۪꒰   🐼 . \  byi ︵}$$<br>
 $${\color{#F2F2F2} ︶︶  ˚̣̣̣\ I'm \  VERY \   mentally \  𓏵◞  \ }$$<br>
 $${\color{#F2F2F2} ♡⏝⸝⸝ \ ill \ \ and \ emotinal \ ⠀ 𓏏}$$<br>
 $${\color{#}◞ 𓏼 \ and \ MAY \ ︶  disant  \ myself  ꒱
