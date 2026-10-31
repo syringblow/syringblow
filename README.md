@@ -12,7 +12,7 @@
 
 
 
-<img width="340"  alt="image" src="https://i.ibb.co/SDZ3QxxH/Untitled605-20260723145747.png" />
+<img width="340"  alt="image" src="https://i.postimg.cc/Y0YMp7wS/hiihijhi.png" />
 
 
 $${\color{#ECE7E7}{ིྀ  𓎟𓎟𓎟𓎟𓎟𓎟𓎟ᛝ𓎟𓎟　†　𓎟𓎟ᛝ𓎟𓎟𓎟𓎟𓎟𓎟𓎟 ྀི}}$$
