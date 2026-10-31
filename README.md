@@ -43,7 +43,7 @@ $${\color{#F2F2F2} ︶︶  ˚̣̣̣\ I'm \  VERY \   mentally \  𓏵◞  \ }$$<
 $${\color{#F2F2F2} ♡⏝⸝⸝ \ ill \ \ and \ emotinal \ ⠀ 𓏏}$$<br>
 $${\color{#}◞ 𓏼 \ and \ MAY \ ︶  disant  \ myself  ꒱
 }$$<br>
-$${\color{#F2F2F2} ◜ㅤfrom \ you \ or \ i \ ignore \ you \ please \ ◞}$$<br>
+$${\color{#F2F2F2} ◜ㅤfrom \ you \ or  \ ignore \ you \ please \ ◞}$$<br>
 $${\color{#F2F2F2} ໒ 　dont \ take \ it \ personally \ kayy.. \ . }$$<br>
   </div>
  <div>︵︵︵ ๑ ♡ ๑ ︵︵︵</div>
